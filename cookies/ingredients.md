@@ -1,0 +1,7 @@
+1 cup peanut butter
+½ cup white sugar
+⅓ cup packed brown sugar
+1 egg
+1 teaspoon vanilla extract
+½ teaspoon baking soda
+½ cup semisweet chocolate chips (Optional)
